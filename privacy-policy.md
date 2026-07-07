@@ -40,4 +40,4 @@ If this policy changes, the updated version will be posted at this same address 
 
 ## Contact
 
-Questions about this policy or the app: **masonleonard7@gmail.com**
+Questions about this policy or the app: **leonardsoltuions61@gmail.com**
